@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **HTML5,CSS3,Git**
 
-- 📫 How to reach me **sunilbohara2142060@gmail.com**
+- 📫 How to reach me **sunillbohara@gmail.com**
 
 - ⚡ Fun fact **: I love Films and Filmmaking.**
 
